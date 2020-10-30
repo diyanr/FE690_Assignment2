@@ -64,7 +64,7 @@ October 28. The class time on October 28 will be left open for viewing these pre
 You should comment on each of these videos with constructive feedback and/or questions.
 Selection of presenters will be announced on Canvas on Monday, October 12. If you strongly
 prefer to present (or not present) in this second group, please contact me as soon as possible
-so that I can try to accomodate any request. If you have presented in the rst group, then
+so that I can try to accomodate any request. If you have presented in the first group, then
 you do not need to present again. I cannot guarantee all requests will be granted. Beyond
 any such requests, selection will be made through a random number generator from the
 official course list. Note all students will present exactly once during the semester, those
